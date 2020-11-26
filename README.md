@@ -1,4 +1,4 @@
-![](./overview_cut.jpg)
+![](./DSC_2228-1.jpg)
 
 # Antoine Gagnon
 ## Web developer, all that stuff
